@@ -1,2 +1,0 @@
-# joyannadraws
-my art stuff
